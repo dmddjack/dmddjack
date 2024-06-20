@@ -1,5 +1,4 @@
 ### Yoooo! 👋
-- 🎓 LSTKCMSS ‘21
 - 📖 CUHK '25 | AIST | S.H.Ho
 - 🎮 Froza Horizon 5 | Minecraft | Stellaris | etc.
 - ❤️ Coding | Mathematics | Reading | Gaming | Cycling | Hiking | Running
